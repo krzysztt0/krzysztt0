@@ -2,6 +2,6 @@
 
 
 - 🌱 I’m currently learning Data Science!
-- 📫 How to reach me: @kmarcinkievicz
-- Enjoy Right Now, Today
+- 📫 How to reach me: @kmarcinkievicz on ig
+-  Enjoy Right Now, Today
 
